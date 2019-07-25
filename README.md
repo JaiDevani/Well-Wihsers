@@ -1,4 +1,4 @@
-# Well-Wihsers
+# Well-Wishers
 As we all know, our nation sleeps peacefully at night and feels secure throughout the day due to the armed forces that protect us day and night. But a few of them become immortal as martyrs as they lay their lives down for the safety of our nation. This will be a small initiative for us to provide some help to their family as a token of appreciation by the 1.3 billion souls that they protected.
 
 
